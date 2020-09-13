@@ -14,9 +14,9 @@ Finally, there is the issue of choice. If I have the right to drink alcohol and 
 
 Over the past few years, a new debate has emerged over how universities should concentrate their faculty's work. Many universities have begun shifting their focus away from research and toward better teaching methods. However, a number of reasons exist which suggest that this research is essential for universities to function properly.
 
-One of the most important considerations for any college is its ranking among other institutions. A higher ranking benefits a university by drawing in more students. Most ranking systems put an emphasis on research work done by the faculty. Without an adequate base of research and published work, it is unlikely that a university will gain high marks in university ran kings.
+One of the most important considerations for any college is its ranking among other institutions. A higher ranking benefits a university by drawing in more students. Most ranking systems put an emphasis on research work done by the faculty. Without an adequate base of research and published work, it is unlikely that a university will gain high marks in university rankings.
 
-Another benefit of focusing on research is that more faculties are likely to gain wider recognition. “Public intellectuals” -famous professors whose work has been recognized by the public at large- do a great deal to increase a university's prestige. Public intellectuals draw in more students and attract funding for the college. Without a focus on research, it is less likely that a university will produce a public intellectual.
+Another benefit of focusing on research is that more faculties are likely to gain wider recognition. “Public intellectuals” – famous professors whose work has been recognized by the public at large – do a great deal to increase a university's prestige. Public intellectuals draw in more students and attract funding for the college. Without a focus on research, it is less likely that a university will produce a public intellectual.
 
 Besides public appearance for a university, a focus on research can also directly benefit the students that attend the university. Professors that do more research in their field tend to have a better grasp of their subject and are more informed. This results in a better education for the students learning under them.
 
